@@ -31,6 +31,9 @@ Can This Run 24/7 [ maybe if i can keep my laptop on ]
 
 Can YouTube in 4K [Maybe if u have super fast wi-fi lol]
 
+-
+
+
 Geting What Remote Desktop [ u can use other ones ]
 
 Chrome Remote Desktop [Recommend]
