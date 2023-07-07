@@ -23,9 +23,11 @@ Space For VM DISK
 
 -
 
-This Can Games [Yes] Web Game Or Cloud or Light Way Games
+Can This Run Web [ Yes ]
 
-This Run 3D [Yes]
+Can This Run games [ maybe if u have god dang fast wi-fi ]
+
+Can This Run 24/7 [ maybe if i can keep my laptop on ]
 
 Can YouTube in 4K [Maybe if u have super fast wi-fi lol]
 
